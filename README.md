@@ -1,1 +1,2 @@
 it's, like, the stuff the project asks me to do
+I have no interest in cooking, but do like Terraria a lot, many creative liberties have been taken in this recipes steps since there aren't any steps to mixing the ingridients in the game.
